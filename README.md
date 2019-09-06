@@ -1,0 +1,1 @@
+# KryptoCrash.github.io
